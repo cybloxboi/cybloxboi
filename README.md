@@ -3,4 +3,4 @@
 - Studying as Gifted Mathematics Program (GMP) Student
 - 👀 I’m interested in Mobile Application Dev
 - 🌱 I’m currently learning Flutter
-- 📫 How to reach me (twitter: @Cyblox_boi or facebook: Sukonlanat Thawonfung)
+- 📫 How to reach me (ig: @cyblox_zariq or facebook: Sukonlanat Thawonfung)
